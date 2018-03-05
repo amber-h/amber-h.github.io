@@ -13,7 +13,7 @@ Pick up a copy of [Lonely Planet](https://www.lonelyplanet.com/cuba) for Cuba be
 Before going I would also recommend brushing up on the interesting Cuban history and culture. A couple documentaries I enjoyed watching are [Cuba and the Cameraman](https://www.netflix.com/ca/title/80126449) and [Cuba: The Forgotten Revolution](https://www.netflix.com/ca/title/80101991).
 
 #### Currency in Cuba
-Cuba interestingly has two currencies: the Cuban peso (CUP) and the Cuban convertible peso (CUC). The value of one CUC (pronounced *kook*) is fixed to the American dollar and is worth roughly 25 times a CUP. The CUC was introduced in 1994 and is mostly used by the tourism industry. Bring cash to exchange into CUCs once you arrive at the airport in Cuba. I brought Canadian dollars. If you can avoid bringing U.S dollars I would do so because they charge an extra 10% fee to convert USD to CUC. 
+Cuba interestingly has two currencies: the Cuban peso (CUP) and the Cuban convertible peso (CUC). The value of one CUC (pronounced *kook*) is fixed to the American dollar and is worth roughly 25 times a CUP. The CUC was introduced in 1994 and is mostly used by the tourism industry. Bring cash to exchange into CUCs once you arrive at the airport in Cuba. I brought Canadian dollars. If you can avoid bringing U.S dollars I would do so because they charge an extra 10% fee to convert USD to CUC. Don't expect to be paying by card, most places take cash.
 
 At the end of your trip, convert any left over CUCs you have at a bank in the city before heading to the airport. The airport won't exchange your CUCs back to dollars.
 
@@ -28,10 +28,7 @@ If you are looking to stay away from big resorts in Cuba, there are more than en
 
 We found nice and comfortable *casa particulares* in Havana and Viñales for 25 - 40 CUCs a night without pre-booking any of the accommodations.
 
-#### How to get around
-It is fairly easy to get rides with locals or taxis and there is a bus company [Viazul](https://www.viazul.com/) which can get you between cities and towns in Cuba.
-
-## Exploring Cuba in 10 days
+## An itinerary for 10 days in Cuba
 <img src="/images/cuba-buildings.jpg" alt="Drawing" style="width: 100%;"/>
 
 #### Day 1 - 4: Havana
@@ -48,17 +45,34 @@ If you are into art, there are galleries on every other block in Old Havana.
 <img src="/images/cuba-art.jpg" alt="Drawing" style="width: 100%;"/>
 *Gallery with local art in Old Havana*
   
-Stop by [Floridita](http://www.floridita-cuba.com/), one of Ernest Hemingways favourite spots, for a Daiquiri and likely catch some live music while you are there. If you want to escape the crowds of Old Havana for a bit, cross the street and walk a block from Floridita to enjoy some views of the city and a drink at the rooftop pool at the [Gran Hotel Manzana  Kempinski la Habana](https://www.kempinski.com/en/havana/gran-hotel-kempinski-la-habana/). Note the swimming is only for guests of the hotel.
+Stop by [Floridita](http://www.floridita-cuba.com/), one of Ernest Hemingways favourite spots, for a Daiquiri and likely catch some live music while you are there. If you want to escape the crowds of Old Havana for a bit, cross the street and walk a block from Floridita to enjoy some views of the city and a drink at the rooftop pool at the [Gran Hotel Manzana  Kempinski la Habana](https://www.kempinski.com/en/havana/gran-hotel-kempinski-la-habana/). Note: the swimming is only for guests of the hotel.
 
 <img src="/images/cuba-pool.jpg" alt="Drawing" style="width: 100%;"/>
 *Rooftop patio at the Gran Hotel Kempinski in Havana*
 
 #### Day 4 - 6: Viñales
-Vinales
+Before getting to Cuba, we had nothing beyond the first three nights booked. This gave us a nice level of flexibility in terms of where we wanted to go and also allowed us to figure out logistics with the help of locals while we were there. We knew we wanted to head to Viñales, a small town a 2 hour drive west of Havana. Viñales is home to many tobacco farms and is surrounded by beautiful green valleys. It is a quiet, easy going contrast to Havana. Having nothing booked beyond our first three days in Havana, we went down to the [Viazul](https://www.viazul.com/) bus station the morning of our 4th day in Cuba to catch an early bus and head to Viñales. The bus is around 12CUC per person, but it takes 4+ hours to get to Viñales with all the stops (vs 2 hours by car). Once we got to the bus station, there was a handful of people with private taxis waiting outside offering private rides to Viñales. We were able to get a private taxi for 25 CUC / person, which in my opinion was worth the time saved and the comfort of a more modern taxi. If you try to book private taxis in advance in Havana, they will tell you it costs 170+ CUCs for the ride, so I would definitely recommend heading to the bus station and figuring out your transportation there.
+
+<img src="/images/cuba-tobacco.jpg" alt="Drawing" style="width: 100%;"/>
+*Tobacco farm in Viñales*
+
+You probably only need a couple of days in Viñales, the town is quite small, but experiencing the kind Cuban hospitality and the simple lifestyle of this small village was worth it. You can check out a tobacco farm while you are there, rent bikes and bike around the countryside or find some hiking trails. Don't worry about where to stay in Viñales. Essentially every small home in the town has extra rooms rented out for guests which cost around 25 CUC / night. A local that runs her own *casa particular* in Viñales helped us find a cosy room for two nights once we got there.
+
+<img src="/images/cuba-countryside.jpg" alt="Drawing" style="width: 100%;"/>
+*Viñales countryside*
  
 #### Day 6 - 9: Trinidad and Playa Ancon
-Trinidad and Playa Ancon  
+We originally planned to spend the last few days relaxing at the beaches of Varadero, a popular tourist destination for people seeking all inclusive resorts, about 2.5 hour drive east of Havana. We didn't go to Cuba for all inclusive resorts but we definitely wanted some time on the beach before leaving. Luckily we hadn't booked anything in advance because a cold front was coming through parts of Cuba and it was supposed to be cold and cloudy in Varadero. After we checked out of the casa particular in Viñales we walked to the [Viazul](https://www.viazul.com/) bus station with our bags to see if we could get to Trinidad and Playa Ancon about 4 hours south east of Havana. We originally wanted to visit Trinidad as well but didn't think we would have enough time and in the end I am happy we made the change of plans to visit Trinidad and Playa Ancon. A local that needed to get to Trinidad offered to give us a ride for ~40 CUCs / person which seemed reasonable given the 6-7hour drive and the bus would have cost 37 CUC / person.
 
-#### Day 10
-Fly out of Havana
+<img src="/images/cuba-playaancon.jpg" alt="Drawing" style="width: 100%;"/>
+*the beaches of Playa Ancon*
 
+You can stay at a casa particular in the town of Trinidad, or go to one of the few hotels at Playa Ancon about a 10 minute drive outside of Trinidad if you want to spend a few days right on the beach. The only option for Playa Ancon hotels are all inclusives so they are a bit pricier around 200 CUC / night vs the 30 - 50 for a casa particular in the town.
+  
+Trinidad is a cute colorful colonial town with 1850s architecture. It has a lively nightlife with hard to miss live music, there is some hiking in the area and it is close to the beach. There is a lot to offer and was a nice way to wrap up 10 days in Cuba.
+
+Head back to Havana for your last night in Cuba before catching your flight back home on day 10!
+
+#### Day 10: Fly home from Havana
+
+Remember to exchange your CUCs back to dollars if you have any leftover that you don't need before going to the airport! 
