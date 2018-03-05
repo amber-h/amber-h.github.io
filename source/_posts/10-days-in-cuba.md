@@ -67,7 +67,7 @@ We originally planned to spend the last few days relaxing at the beaches of Vara
 <img src="/images/cuba-playaancon.jpg" alt="Drawing" style="width: 100%;"/>
 *the beaches of Playa Ancon*
 
-You can stay at a casa particular in the town of Trinidad, or go to one of the few hotels at Playa Ancon about a 10 minute drive outside of Trinidad if you want to spend a few days right on the beach. The only option for Playa Ancon hotels are all inclusives so they are a bit pricier around 200 CUC / night vs the 30 - 50 for a casa particular in the town.
+You can stay at a casa particular in the town of Trinidad, or go to one of the few hotels at Playa Ancon about a 10 minute drive outside of Trinidad if you want to spend a few days right on the beach. The only option for Playa Ancon hotels are all inclusives so they are a bit pricier around 200 CUC / night vs the 30 - 50 for a casa particular in the town. Don't expect much from the food at the all inclusives (or in Cuba in general) and if you are chocolate obsessed like I am, you might want to bring your own with you on the trip (unless you can last ten days hehe).
   
 Trinidad is a cute colorful colonial town with 1850s architecture. It has a lively nightlife with hard to miss live music, there is some hiking in the area and it is close to the beach. There is a lot to offer and was a nice way to wrap up 10 days in Cuba.
 
