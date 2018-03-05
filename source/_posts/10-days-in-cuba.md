@@ -32,16 +32,31 @@ We found nice and comfortable *casa particulares* in Havana and Viñales for 25 
 It is fairly easy to get rides with locals or taxis and there is a bus company [Viazul](https://www.viazul.com/) which can get you between cities and towns in Cuba.
 
 ## Exploring Cuba in 10 days
-#### Day 1 - 4
-Fly into the [Havana Airport](http://havana.airportcuba.net/) and spend the first few days experiencing the culture, music scene, art and history in Havana. Three nights was a good amount of time to get to know Old Havana fairly well, go running along the Malecón, visit la *Plaza de la Revolución*, drive through Vedado and drink many 4 CUC mojitos. I would recommend staying in or around *Habana Vieja* (Old Havana). You can easily spend a couple of days walking around this area exploring the [four main plazas](http://cubatoursandtravel.com/destinations/the-four-plazas-of-old-havana/) and dining at one of the many [paladars](https://en.wikipedia.org/wiki/Paladar) (which refers to the privately owned non-government run restaurants in Cuba). You'll have plenty of opportunity to get a ride in a 50 year old American classic car as taxi drivers are lined up along the streets of Havana waiting to give tourists a ride. Getting a ride around the city with an English speaking guide (unless your Spanish is good!) in an old convertible is a nice way to find your bearings in the city and get to some of the areas outside of Old Havana that are not walking distance.
+<img src="/images/cuba-buildings.jpg" alt="Drawing" style="width: 100%;"/>
+
+#### Day 1 - 4: Havana
+Fly into the [Havana Airport](http://havana.airportcuba.net/) and spend the first few days experiencing the culture, music scene, art and history in Havana. Three nights was a good amount of time to get to know Old Havana fairly well, go running along the Malecón, visit la *Plaza de la Revolución*, drive through Vedado and drink many 4 CUC mojitos. I would recommend staying in or around *Habana Vieja* (Old Havana). You can easily spend a couple of days walking around this area exploring the [four main plazas](http://cubatoursandtravel.com/destinations/the-four-plazas-of-old-havana/) and dining at one of the many [paladars](https://en.wikipedia.org/wiki/Paladar) (which refers to the privately owned non-government run restaurants in Cuba). You'll have plenty of opportunity to get a ride in a 50 year old American classic car as taxi drivers are lined up along the streets of Havana waiting to give tourists a ride. Get a ride around the city with an English speaking guide (unless your Spanish is good!) in an old convertible. This is a nice way to find your bearings in the city and get to some of the areas outside of Old Havana that are not walking distance.
  
  <img src="/images/old-havana-car.jpg" alt="Drawing" style="width: 100%;"/>
- *Classic car in the streets of Old Havana*
+*Classic car in the streets of Old Havana*
  
-#### Day 4 - 6
+<img src="/images/havana-streets.jpg" alt="Drawing" style="width: 100%;"/>
+*Looking out at the streets of Havana from the Museum of the Revolution*
+
+If you are into art, there are galleries on every other block in Old Havana.
+
+<img src="/images/cuba-art.jpg" alt="Drawing" style="width: 100%;"/>
+*Gallery with local art in Old Havana*
+  
+Stop by [Floridita](http://www.floridita-cuba.com/), one of Ernest Hemingways favourite spots, for a Daiquiri and likely catch some live music while you are there. If you want to escape the crowds of Old Havana for a bit, cross the street and walk a block from Floridita to enjoy some views of the city and a drink at the rooftop pool at the [Gran Hotel Manzana  Kempinski la Habana](https://www.kempinski.com/en/havana/gran-hotel-kempinski-la-habana/). Note the swimming is only for guests of the hotel.
+
+<img src="/images/cuba-pool.jpg" alt="Drawing" style="width: 100%;"/>
+*Rooftop patio at the Gran Hotel Kempinski in Havana*
+
+#### Day 4 - 6: Viñales
 Vinales
  
-#### Day 6 - 9
+#### Day 6 - 9: Trinidad and Playa Ancon
 Trinidad and Playa Ancon  
 
 #### Day 10
