@@ -76,3 +76,6 @@ Head back to Havana for your last night in Cuba before catching your flight back
 #### Day 10: Fly home from Havana
 
 Remember to exchange your CUCs back to dollars if you have any leftover that you don't need before going to the airport! 
+
+<img src="/images/cuba-me.jpg" alt="Drawing" style="width: 100%;"/>
+*Me! Riding around Havana in an old convertible*
