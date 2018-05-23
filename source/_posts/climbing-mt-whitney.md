@@ -95,4 +95,4 @@ You can fly into Los Angeles (LAX) and drive about 4 hours to Lone Pine, CA (the
   <img src="/images/whitney/glissade.jpg" alt="Drawing" style="width: 100%;"/>
         *Glissading down the chute on the way back. A 10 minute trip down this portion of the trail vs roughly 2 hours on the way up*    
       
-  Something I really appreciated about doing this hike in May is that there was essentially no one else on the mountain (until the last few miles). There was total maybe 20 - 30 people spread out on the mountain vs 160 in the summer. Less crowds just comes at the cost of more unpredictable, colder weather and a bit more of a technical route in the snow. Overall amazing hike and experience in the mountains.
+  Something I really appreciated about doing this hike in May is that there was essentially no one else on the mountain (until the last few miles). I saw a total of maybe 30 people along the trail vs 160 in the summer. The lighter crowds in May come at the cost of more unpredictable, colder weather and a bit more of a technical route in the snow. Overall amazing hike and experience in the mountains.
