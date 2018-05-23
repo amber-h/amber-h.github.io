@@ -15,7 +15,7 @@ You will need a permit to climb Mt Whitney between May 1st and October 31st. You
 
 Some tips that I learnt when applying for permits:
 * Smaller groups have better chances of getting permits in the lottery
-* Applying for permits to hike during the week will be easier to get than on weekends
+* You will have higher changes of getting permits to hike during the week than on weekends
 * Earlier in the season (May) is much less busy than in the summer months (due to weather conditions and a lot of snow remaining on the trail)
 
 A total of 160 permits are given out via lottery system during the hiking season (apparently 100 day hike permits and 60 overnight permits per day). The only other way to obtain a permit is if there are 'no-shows' or cancellations for a particular day and requesting a walk-in permit at the [Eastern Sierra visitor center](https://www.google.com/search?q=mt+whitney+visitor+centre+lone+pine&oq=mt+whitney+visitor+centre+lone+pine&aqs=chrome..69i57.4463j0j1&sourceid=chrome&ie=UTF-8) in Lone Pine, CA.
