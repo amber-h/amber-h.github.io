@@ -45,7 +45,7 @@ You can fly into Los Angeles (LAX) and drive about 4 hours to Lone Pine, CA (the
   
   <img src="/images/whitney/green.jpg" alt="Drawing" style="width: 100%;"/>
   
-  It was nice to spend a night on the mountain, which also shaved a couple hours and miles off the day to summit which was nice. It also allowed me to spend some time just over 10,000feet to help with acclimatization.
+  It was nice to spend a night on the mountain, which also shaved a couple hours and miles off the day to summit. It also allowed me to spend some time just over 10,000 feet which might have helped with acclimatization (although I am not sure if I spent enough time at this elevation to make a difference).
   
   <img src="/images/whitney/lonepinelake.jpg" alt="Drawing" style="width: 100%;"/>
     *Lone Pine Lake, 2.8 miles into the hike and another camping option*
@@ -84,7 +84,7 @@ You can fly into Los Angeles (LAX) and drive about 4 hours to Lone Pine, CA (the
         
    I thought climbing up the steep chute would be the most difficult portion of the hike (which it was very difficult), but to my surprise the last 2.3 miles along the backside ridge of the mountain were extremely long, grueling and a bit stressful. There were very narrow portions of the snow covered scramble and this is when the elevation started to hit me making each step quite a bit of effort.
       
-   Dark storm clouds started to roll in so I got to the summit took a quick photo and turned around almost immediately (it had started to hail at this point). After leaving Outpost Camp around 5am, I reached the summit around 11:15am. It is recommended you summit before 11am, because typically storm clouds start to roll in early afternoon if they do. Roughly half the people on the mountain this day turned around at some point without summitting because of the conditions.   
+   Dark storm clouds started to roll in so I got to the summit, took a quick photo and turned around almost immediately (it had started to hail at this point). I reached the summit around 11:15am, after leaving Outpost Camp around 5am. It is recommended you summit before 11am, because typically storm clouds start to roll in early afternoon if they do. Roughly half the people on the mountain this day turned around at some point without summitting because of the conditions.   
   
   <img src="/images/whitney/summit.jpg" alt="Drawing" style="width: 100%;"/>
           *Shelter at the summit of Mt Whitney*
