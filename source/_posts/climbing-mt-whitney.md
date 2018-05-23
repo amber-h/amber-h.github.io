@@ -27,7 +27,7 @@ Interestingly, I got a day permit for May 19th, and when I showed up at the visi
 <img src="/images/whitney/drive.jpg" alt="Drawing" style="width: 100%;"/>
 *The drive up to Whitney Portal trailhead from Lone Pine, CA*
 
-You can fly into Los Angeles (LAX) and drive about 4 hours to Lone Pine, CA (the closest town to the Whitney Portal trailhead, where you pick up your permits). Another option is to fly into Las Vegas, and drive a bit over 4 hours, which is the option I went with. The drive from Vegas was fun because you get to drive through Death Valley on the way. I spent some time exploring Death Valley on the way back from Mt Whitney. Within 24 hours you can be at the lowest point in the U.S, -282.2 feet below sea level at [Badwater Basin, Death Valley](https://www.nps.gov/deva/learn/photosmultimedia/badwater-basin.htm) and at the highest point in the lower 48 states at the top of Mt Whitney.
+You can fly into Los Angeles (LAX) and drive about 4 hours to Lone Pine, CA (the closest town to the Whitney Portal trailhead, where you pick up your permits). Another option is to fly into Las Vegas, and drive a bit over 4 hours, which is the option I went with. The drive from Vegas was fun because you get to drive through Death Valley on the way and I got to spend some time exploring the area on the way back from Mt Whitney. Within 24 hours you can be at the lowest point in the U.S, 282.2 feet below sea level at [Badwater Basin, Death Valley](https://www.nps.gov/deva/learn/photosmultimedia/badwater-basin.htm) and at the highest point in the lower 48 states at the top of Mt Whitney.
 
 ## Gear 
 
